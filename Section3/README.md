@@ -1,0 +1,1 @@
+Section3 was about introducing the curriculum of this course.
